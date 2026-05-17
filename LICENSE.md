@@ -1,4 +1,4 @@
-# 
+# New DaVinci Resolve for PC plugins is the best DaVinci Resolve for PC plugins with keyframe-animation and 3D-layers. Safe, reliable, and optimized for maximum performance.
 
 
 
